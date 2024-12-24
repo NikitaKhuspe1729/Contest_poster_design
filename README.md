@@ -11,3 +11,4 @@
 ![player highlight](https://github.com/user-attachments/assets/73b3db16-e80d-43a1-bf0f-44181f9107d2)
 
 **Fan contest announcement**
+![fan contest announcement](https://github.com/user-attachments/assets/13f71295-422a-42da-878a-887c6b121993)

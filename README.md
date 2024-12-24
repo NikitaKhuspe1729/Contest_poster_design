@@ -5,6 +5,7 @@
 
 # Round 2
 **Match Update**
+![match update](https://github.com/user-attachments/assets/9cf1c0d7-5097-4a44-a5b8-b29a503d8702)
 
 **Player highlight**
 

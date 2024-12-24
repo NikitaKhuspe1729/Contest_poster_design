@@ -5,10 +5,12 @@
 
 # Round 2
 **Match Update**
-![match update](https://github.com/user-attachments/assets/9cf1c0d7-5097-4a44-a5b8-b29a503d8702)
+![match update (2)](https://github.com/user-attachments/assets/f46bf656-6693-49e6-9055-b58afe71d304)
+
 
 **Player highlight**
-![player highlight](https://github.com/user-attachments/assets/73b3db16-e80d-43a1-bf0f-44181f9107d2)
+![player highlight (1)](https://github.com/user-attachments/assets/0cfef47c-4e92-4d9c-8abf-32c8edf1adb4)
+
 
 **Fan contest announcement**
-![fan contest announcement](https://github.com/user-attachments/assets/13f71295-422a-42da-878a-887c6b121993)
+![fan contest announcement](https://github.com/user-attachments/assets/02995f0a-e472-415a-96f6-877335b77ac9)
